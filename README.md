@@ -8,7 +8,7 @@
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿ 𝒜𝓃 𝒶𝒸𝒶𝒹𝑒𝓂𝒾𝒸 & 𝓅𝓇𝒶𝒸𝓉𝒾𝓉𝒾𝑜𝓃𝑒𝓇 𝓌𝒽𝑜 𝓃𝑒𝓋𝑒𝓇 𝒻𝑜𝓇𝑔𝑒𝓉𝓈 𝒽𝑒𝓇 𝓇𝑜𝑜𝓉𝓈 𝒾𝓃 𝐼𝓃𝒻𝑜𝓇𝓂𝒶𝓉𝒾𝑜𝓃 𝒮𝓎𝓈𝓉𝑒𝓂𝓈 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
-✨ **Guru Informatika Gen Z Serba Bisa 🎀 | Educator | Researcher | Tech Enthusiast** ✨
+✨ **Gen Zeelenial Teacher 🎀 | Educator | Researcher | Tech Enthusiast** ✨
 
 <br>
 
